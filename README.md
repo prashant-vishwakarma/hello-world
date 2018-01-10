@@ -12,5 +12,5 @@ That's all for random stuff.
 Oh! btw I'm single XP
 
 Update:
-  Now I own a Laptop with 17 7700HQ GTX 1050 16GB DDR4 RAM
+  Now I own a Laptop with i7 7700HQ GTX 1050 16GB DDR4 RAM
   For the next decade probably.
